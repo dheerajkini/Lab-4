@@ -1,3 +1,3 @@
 # Lab-4
-hello
-how are you
+Bankai
+katen kyokotsu karamstu shinjui
